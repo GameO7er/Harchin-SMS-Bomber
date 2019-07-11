@@ -2,7 +2,7 @@
 
 Present to :
 - https://www.webamooz.net/
-- https://t.me/webamoozir
+- https://t.me/s/webamoozir
 - https://twitter.com/s7az2mm
 and finally admin of these social medias :
 - https://t.me/hregy
