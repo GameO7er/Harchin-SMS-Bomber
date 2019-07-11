@@ -1,7 +1,7 @@
 # Harfchin-SMS-Bomber
 
 Present to :
-- https://www.webamooz.net/
+- https://www.webamooz.com
 - https://t.me/s/webamoozir
 - https://twitter.com/s7az2mm
 and finally admin of these social medias :
